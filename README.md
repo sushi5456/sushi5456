@@ -7,7 +7,6 @@
 📫Check out my Linked-in profilee for more info: www.linkedin.com/in/mummidivarapu-sushanth-58a000380 <br/>
 
 
-⚡You can refer me as SUSHI..
 
 
 
